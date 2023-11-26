@@ -48,7 +48,7 @@ Welcome! :3
 
   ♡😸BEST FRIENDS ( i love them all sm )♡
   -
-  - 😸Yunobo : Your such a good friend , im extremely greatful to have a friend like you , your very caring and sweet!! ilysfm!!<33 ( ALSO !! EATS YOUR ART GRAHH !! credits to them for the pfp :33 ) /p
+  - 😸Yunobo : Your such a good friend , im extremely greatful to have a friend like you , your very caring and sweet!! ilysfm!!<33 ( ALSO !! EATS YOUR ART GRAHH !! ) /p
   
   - 😸Jax : You've been by my side for a long time , and your so sweet and funny too !! ilysfm !!<3 /p
   
