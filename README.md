@@ -1,4 +1,4 @@
-♡🐈MEOW MEOW! WELCOME! :3 🐈♡
+Welcome! :3
 -
 - 🥞 Loaf / Crumb / Bell / Rocket / Frog
 - 🍔 Any prns + neos ! Paw/Meow/Purr/Soft/Fluff/Xe/Cloud/Bow/Bun/Floof
@@ -14,6 +14,8 @@
   - 🌽Dave And Bambi
   - 🦊Lapfox
   - 😈Helluva Boss
+  - 🥞Object Shows
+  - 🎤Your Favorite Martian (YFM)
  
 ◇🚫DNI & INT✔️ !◇
 -
@@ -40,7 +42,7 @@
  - ✔️people who have personas ( PLEASE!!!! my persona needs other personas to interact with </3 )
  - ✔️Robot Jones fandom ( PLEASE PLEASE PLEASE ITS SOOOOOOOO RARE TO FIND ROBOT JONES COSPLAYERS AND OR PEOPLE )
  - ✔️Helluva Boss ( ya'll are funny <3)
-
+ - ✔️YFM fans!! :33
 
 
 
