@@ -30,7 +30,8 @@ Welcome! :3
   - 🚫People I do NOT have good history with .
   - 🚫Basic Dni
   - 🚫12 or under  , 18 or older
-
+  - 🚫fandoms / people im on thin ice with .
+  - 🚫If your Andiy . ( You stupid fuck , you know exactly what you did . /dir )
 
 ♡ ✔️INT !!
 -
@@ -47,8 +48,10 @@ Welcome! :3
 
   ♡😸BEST FRIENDS ( i love them all sm )♡
   -
-  - 😸Yunobo : Your such a good friend , im extremely greatful to have a friend like you , your very caring and sweet!! ilysfm!!<33/p
+  - 😸Yunobo : Your such a good friend , im extremely greatful to have a friend like you , your very caring and sweet!! ilysfm!!<33 ( ALSO !! EATS YOUR ART GRAHH !! credits to them for the pfp :33 ) /p
   
   - 😸Jax : You've been by my side for a long time , and your so sweet and funny too !! ilysfm !!<3 /p
   
   - 😸Kraze : MY BSF FOR LIFE!! ive known you for so long and ilysfm so so so much/p
+    
+  - 😸Wendy : OML !! the sweetest ever !! Your so kind and so caring and your art is so YUMMERS!!
