@@ -1,16 +1,17 @@
-### Hi there 👋
+- 🥞 Loaf / Crumb / Bell / Rocket / Frog
+  🍔 Any prns + neos ! Paw/Meow/Purr/Soft/Fluff/Xe/Cloud/Bow/Bun/Floof
 
-<!--
-**L0AFSTER/L0AFSTER** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  ☆HYPERFIXATIONS☆
+  - Zelda
+  - Robot Jones
+  - A Hat In Time
+  - Splatoon
+  - Dave And Bambi
+  - Lapfox
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  ♡BEST FRIENDS ( i love them all sm )♡
+  -Yunobo : Your such a good friend , im extremely greatful to have a friend like you , your very caring and sweet!! ilysfm!!<33/p
+  
+  -Jax : You've been by my side for a long time , and your so sweet and funny too !! ilysfm !!<3 /p
+  
+  -Kraze : MY BSF FOR LIFE!! ive known you for so long and ilysfm so so so much/p
