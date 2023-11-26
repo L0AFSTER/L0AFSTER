@@ -5,6 +5,7 @@ Welcome! :3
 - 🐈 Adhd , Odd , Autism
 - 💕 Lesbian , Pangender
 - 🍕Fake Peppino Kinnie & Puff Puff Copinglink  :3
+- 🐈 I AM BELL IRL . ( MY PERSONA ) DOUBLES PLEASE DON'T INT </3
 - 💔If im rude the first time we meet , then please don't be upset ! I'm like that , Cuz it's my first time meeting you.
 - 🌻Im extremely sensitive ! So please be careful with your words.
 
