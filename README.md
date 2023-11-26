@@ -39,8 +39,8 @@ Welcome! :3
  - ✔️mini food enjoyers
  - ✔️Nice people
  - ✔️chill people
- - ✔️over 12 , under 18
  - ✔️YFM fans!! :33
+ - ✔️Over 12 , Under 18 
 
 
 
