@@ -4,8 +4,9 @@ Welcome! :3
 - 🍔 Any prns + neos ! Paw/Meow/Purr/Soft/Fluff/Xe/Cloud/Bow/Bun/Floof
 - 🐈 Adhd , Odd , Autism
 - 💕 Lesbian , Pangender
+- ✔️Feel free to cuddle and hide ! and PLEASE INTERACT!!
 
-☆💕HYPERFIXATIONS💕☆
+ ☆💕HYPERFIXATIONS💕☆
 -
   - 🕯Zelda
   - 🤖Robot Jones
