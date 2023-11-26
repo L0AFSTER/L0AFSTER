@@ -5,6 +5,10 @@ Welcome! :3
 - 🐈 Adhd , Odd , Autism
 - 💕 Lesbian , Pangender
 - ✔️Feel free to cuddle and hide ! and PLEASE INTERACT!!
+- 🍕Fake Peppino Irl ( Doubles are free 2 interact ! )
+- 🎤Puff Puff Copinglink and kinnie :3
+- 💔If im rude the first time we meet , then please don't be upset ! I'm like that , Cuz it's my first time meeting you.
+- 🌻Im extremely sensitive ! So pleaee be careful with your words
 
  ☆💕HYPERFIXATIONS💕☆
 -
