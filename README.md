@@ -1,7 +1,7 @@
 Welcome! :3
 -
-- 🥞 Loaf / Crumb / Bell / Rocket / Frog
-- 🍔 Any prns + neos ! Paw/Meow/Purr/Soft/Fluff/Xe/Cloud/Bow/Bun/Floof
+- 🥞 Bell / Rocket / Bella
+- 🍔Any prns + neos ! Paw/Meow/Purr/Soft/Fluff/Xe/Cloud/Bow/Bun/Floof
 - 🐈 Adhd , Odd , Autism
 - 💕 Lesbian , Pangender
 - 🍕Fake Peppino Kinnie & Puff Puff Copinglink  :3
