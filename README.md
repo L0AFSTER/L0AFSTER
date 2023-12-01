@@ -9,6 +9,7 @@ Welcome! :3
 - 💔If im rude the first time we meet , then please don't be upset ! I'm like that , Cuz it's my first time meeting you.
 - 🌻Im extremely sensitive ! So please be careful with your words.
 - 💌 taken by @tweekbroskicoffee <33 ilysfm pookie <33
+
  ☆💕HYPERFIXATIONS💕☆
 -
   - 🕯Zelda
